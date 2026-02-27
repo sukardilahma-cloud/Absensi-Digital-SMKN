@@ -1,1 +1,1 @@
-# Absensi-Digital-1
+# Absensi-Digital-SMKN
